@@ -6,7 +6,7 @@ Sherry Turkle, *Artificial Intimacy: Who We Become When We Talk to Machines*
 
 You signed up, so here is everything you need. It is more than you have to read. Use the parts that are useful to you and skip the rest with a clear conscience.
 
-**When:** Sunday, December 13, 7:00 to 8:15 pm ET **Where:** Online. The meeting link is in the email this packet came with. **What to bring:** One thing, described below. That is the only homework.
+**When:** Sunday, December 13, 7:00 to 8:30 pm ET **Where:** Online. The meeting link is in the email this packet came with. **What to bring:** One thing, described below. That is the only homework.
 
 **You do not have to finish the book.** I do recommend reading it, because it is a good read and you will get more out of the evening if you have. But I would rather have you in the room having read three short pieces than not in the room at all. Those three are below, and they will get you to a place where you can argue with the rest of us. If you did read the whole thing, there is plenty here for you too.
 
